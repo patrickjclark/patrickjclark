@@ -8,4 +8,3 @@
 - 📫 How to reach me: patrickjclark@yahoo.com | https://www.linkedin.com/in/pjclrk/
 - 🌟 Pronouns: He/Him
 - 🏈 Fun fact: I played football at Coe College.
--->
